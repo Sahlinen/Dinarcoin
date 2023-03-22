@@ -1,0 +1,2 @@
+# Dinarcoin
+DINARCOIN DC
